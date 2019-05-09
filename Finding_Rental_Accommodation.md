@@ -16,21 +16,20 @@ When looking for houses, I don't recommend Gumtree because there can be convinci
 
 Most people in Edinburgh get around by walking, cycling or by bus, rather than by car, although there is unofficial parking around the University. The municipal buses (Lothian) are very frequent, very clean and one of the cheapest services in the UK. A single ticket anywhere is £1.70, a day pass is £4 and a monthly pass is £55 (can be cheaper if bought annually through the university). Journey planners are here: https://www.lothianbuses.com/
 
-### Potential places to live:
+### Potential places to live within Edinburgh:
 
 * Marchmont, Bruntsfield, Newington (£££): The most convenient for university and very popular for students and staff. Lots of coffee shops, pubs, restaurants and close to the Meadows and Holyrood Park, walking distance from the city centre.
 
 * Morningside (££-££££): Nice suburb and walkable to the university. Posh reputation but some affordable places.
 
-* Merchiston, Craiglockhart (£££-££££): Very nice suburbs, mostly pricey but a few affordable places.
-
-* Stockbridge and the New Town (£££-££££): very desirable areas and are very popular, but a bit of a commute and can be pricey. Lots of coffee shops, restaurants, again walking distance from the city centre.
-
-* The Grange (£££££): Very posh, very nice, very convenient, but affordable options are rare.
-
 * Polwarth, Shandon, Slateford, Dalry, Gorgie, Colinton (££-£££). These are commutable by bike/bus. Slateford, Gorgie and Dalry never used to be desirable places, but because they have small and affordable flats, young professionals are moving there and it is becoming more gentrified.
 
 * Portobello, Liberton, Leith, Abbeyhill, Newhaven, The Shore, Davidsons Mains, Trinity, Bonnington, Barnton, Corstorphine, Comely Bank: (££-£££). These are nice areas but are bit more of a commute – check before looking.
+
+* Stockbridge and the New Town (£££-££££): very desirable areas and are very popular, but a bit of a commute and can be pricey. Lots of coffee shops, restaurants, again walking distance from the city centre.
+
+* Merchiston, Craiglockhart, The Grange (£££-££££): Very nice suburbs, mostly pricey but occasionally some affordable places.
+
 
 ### What you pay
 
