@@ -22,7 +22,7 @@ Most people in Edinburgh get around by walking, cycling or by bus, rather than b
 
 * Morningside (££-££££): Nice suburb and walkable to the university. Posh reputation but some affordable places.
 
-* Polwarth, Shandon, Slateford, Dalry, Gorgie, Colinton (££-£££). These are commutable by bike/bus. Slateford, Gorgie and Dalry never used to be desirable places, but because they have small and affordable flats, young professionals are moving there and it is becoming more gentrified.
+* Polwarth, Shandon, Slateford, Dalry, Gorgie, Colinton (££-£££). These are commutable by bike/bus. Slowly becoming more gentrified.
 
 * Portobello, Liberton, Leith, Abbeyhill, Newhaven, The Shore, Davidsons Mains, Trinity, Bonnington, Barnton, Corstorphine, Comely Bank: (££-£££). These are nice areas but are bit more of a commute – check before looking.
 
