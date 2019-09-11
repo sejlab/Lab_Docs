@@ -1,6 +1,6 @@
 ### Getting around
 
-Edinburgh is a very walkable city, the only transport options are Uber/Taxi and Lothian Buses (excellent service). For the bus, there is a flat fare of £1.70 for all journeys, or £4 for a day ticket. You must have exact change, which you put into the box next to the driver. There is a useful app that you can download to plan journeys and see the bus times.
+Edinburgh is a very walkable city, the only transport options are Uber/Taxi and Lothian Buses (excellent service). For the bus, there is a flat fare of £1.70 for all journeys, or £4 for a day ticket. You must have exact change, which you put into the box next to the driver. You can also use contactless, which is capped at £4 a day (NB. you cannot buy multiple tickets with contactless). There is a useful app that you can download to plan journeys and see the bus times.
 
 ### Attractions and Things to do
 
@@ -12,7 +12,7 @@ Edinburgh is a very walkable city, the only transport options are Uber/Taxi and 
 
 * Arthur's Seat - A steep climb but great views. Or Calton Hill - A slightly smaller hill with an observatory and the National Monument on top.
 
-* Edinburgh Castle (Free, or £17) - If you do the self-guided tour, then you can walk into the castle walls before the ticket office and have a quick look. Otherwise, I would only pay to go if you really love this kind of thing. Contains the war museum and the crown jewels.
+* Edinburgh Castle (Free, or £17) - If you do the self-guided tour, then you can walk into the castle walls before the ticket office and have a quick look. Otherwise, only pay to go if you really love this kind of thing. Contains the war museum and the crown jewels.
 
 * North Berwick - This is a nice seaside town east of Edinburgh that is easily reached by train. Good seafood, cute cafes & shops and a nice beach. There is also a hill (Berwick Law) to climb for views over the estuary. The nearby Bass Rock is the biggest gannet colony in the world, which you can see from the Scottish Seabird Centre (highly recommended).
 
@@ -39,7 +39,7 @@ For lunch on the go, Oink (roast pork baps), and Union of Genius (soup place)
 * Kampung Ali (Malaysian)
 * Pomegranate or Souq (Lebanese)
 * Tanjore (South Indian)
-* Dishoom (Indian/Iranian).
+* Dishoom (Indian/Iranian)
 
 ### Places to drink
 
