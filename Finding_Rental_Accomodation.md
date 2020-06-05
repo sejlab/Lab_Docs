@@ -14,7 +14,7 @@ When looking for houses, I don't recommend Gumtree because there can be convinci
 
 ### Getting around:
 
-Most people in Edinburgh get around by walking, cycling or by bus, rather than by car, although there is unofficial parking around the University. The municipal buses (Lothian) are very frequent, very clean and one of the cheapest services in the UK. A single ticket anywhere is £1.70, a day pass is £4 and a monthly pass is £55 (can be cheaper if bought annually through the university). Journey planners are here: https://www.lothianbuses.com/
+Most people in Edinburgh get around by walking, cycling or by bus, rather than by car, although there is unofficial parking around the University at King's Buildings. The municipal buses (Lothian) are very frequent, very clean and one of the cheapest services in the UK. A single ticket anywhere is £1.80, a day pass is £4 and a monthly pass is £55 (can be cheaper if bought annually through the university). The buses take contactless capped at £4 per day. Journey planners are here: https://www.lothianbuses.com/
 
 ### Potential places to live within Edinburgh:
 
