@@ -1,6 +1,6 @@
 ### Getting around
 
-Edinburgh is a very walkable city, the only transport options are Uber/Taxi and Lothian Buses (excellent service). For the bus, there is a flat fare of £1.70 for all journeys, or £4 for a day ticket. You must have exact change, which you put into the box next to the driver. You can also use contactless, which is capped at £4 a day (NB. you cannot buy multiple tickets with contactless). There is a useful app that you can download to plan journeys and see the bus times.
+Edinburgh is a very walkable city, the only transport options are Uber/Taxi and Lothian Buses (excellent service). For the bus, there is a flat fare of £1.80 for all journeys, or £4 for a day ticket. You must have exact change, which you put into the box next to the driver. You can also use contactless, which is capped at £4 a day (NB. you cannot buy multiple tickets with contactless). There is a useful app that you can download to plan journeys and see the bus times.
 
 ### Attractions and Things to do
 
@@ -31,19 +31,20 @@ Edinburgh is a very walkable city, the only transport options are Uber/Taxi and 
 * Joseph Pierce (child friendly)
 * There are also lots of great coffee-only places: Artisan Roast, Fortitude, Century General Store, Cult.
 
-For lunch on the go, Oink (roast pork baps), and Union of Genius (soup place)
+For lunch on the go, Oink (roast pork baps), Bonnie Burrito, and Union of Genius (soup place)
 
 ### Places to eat
 
 * Ting Thai Caravan (hipster Thai)
 * Kampung Ali (Malaysian)
 * Pomegranate or Souq (Lebanese)
-* Tanjore (South Indian)
 * Dishoom (Indian/Iranian)
 
 ### Places to drink
 
 * Bow Bar: A whisky pub with good beer too.
+* Dagda: We seem to end up here quite often. Good for whisky.
+* John Leslie's: Our main after-work pub.
 * The Royal Dick: The old vet school and generally good drinks on offer (service and food not great).
 * Hanging Bat: Great place for gin.
 * Dragonfly: Good for cocktails.
