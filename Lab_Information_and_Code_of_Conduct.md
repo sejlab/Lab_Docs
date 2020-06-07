@@ -3,10 +3,9 @@
 * Expectations of all lab members
 * Expectations of supervisor
 * Expectations of PhD students
-
 * Lab resources
 
-* Data archiving
+* Data archiving & Reproducibility
 
 * Candidate selection and interviewing
 
