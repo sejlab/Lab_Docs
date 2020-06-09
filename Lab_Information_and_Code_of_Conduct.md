@@ -13,3 +13,4 @@
 
 * Diversity resources
   * https://link.springer.com/content/pdf/10.1186/s12052-019-0110-5.pdf
+  * https://medium.com/the-faculty/white-academia-do-better-fa96cede1fc5
